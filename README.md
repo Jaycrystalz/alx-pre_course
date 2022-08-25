@@ -1,1 +1,1 @@
-foluso is crazy
+foluso is a good boy
