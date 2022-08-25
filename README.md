@@ -1,1 +1,1 @@
-foluso is a good boy yes
+i admit that i am a fool
